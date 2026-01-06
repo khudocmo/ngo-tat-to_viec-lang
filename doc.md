@@ -125,7 +125,9 @@ Và như con choi choi, chị ta nhẩy xổ đến trước tiền tế, hai ta
 
 Chồm chồm như con trâu lồng, người đàn bà ấy nhảy vọt lên sân tiền tế, vớ luôn lấy con dao nhọn, chực đâm vào người đàn ông.
 
-Mấy người chung quanh xúm lại kéo chị ta ra và khuyên: - Bà Quản không nên nóng quá. Việc đã có quan. Sát nhân giả tử! Bà không ngại! Lát nữa quan về, quan sẽ phân xử!
+Mấy người chung quanh xúm lại kéo chị ta ra và khuyên:
+
+--  Bà Quản không nên nóng quá. Việc đã có quan. Sát nhân giả tử! Bà không ngại! Lát nữa quan về, quan sẽ phân xử!
 
 Hẳn là một vụ án mạng.
 
@@ -147,7 +149,9 @@ Lý Xuân buột miệng trả lời:
 
 -- Ngay lúc xảy ra án mạng, lý dịch làng tôi đã phải phái người lên phủ trình quan. Tử thi còn phải để đó, đợi quan về khám.
 
-Rồi thì anh ta kết luận: - Vụ này có lẽ hai Thu sẽ bị ghép vào án tử hình. Vậy là một quân "ông cụ" giết chết hai mạng.
+Rồi thì anh ta kết luận:
+
+--  Vụ này có lẽ hai Thu sẽ bị ghép vào án tử hình. Vậy là một quân "ông cụ" giết chết hai mạng.
 
 # NGHỆ THUẬT BĂM THỊT GÀ
 
@@ -155,7 +159,9 @@ Từ khi thôi học, tính ra đã gần mười năm, bây giờ tôi mới l�
 
 -- Người nhà đã sắp làm cơm đấy sao?
 
-Lăng Vân lắc đầu: - Không! Sáng mai nhà tôi phải chứa hàng xóm. Chứa xóm cố nhiên không phải là một đầu đề để nói chuyện. Chúng tôi lảng ra chuyện khác. Đồng hồ điểm hai tiếng mới cùng trùm chăn nằm ngủ. Giấc ngủ của tôi đương ngon, thình lình bị tan bởi mấy tiếng lộc cộc của guốc, và gậy nện xuống thềm gạch. Tôi bừng mắt ra, trời đã sáng rõ, trong nhà lố nhố mấy ông cụ già khăn áo tề chỉnh, Lăng Vân đang xoăn xoe chào mời các cụ một cách cung kính. Giữ lễ xã giao với người lạ, tôi vội tung chăn ngồi dậy và đương lúng túng chưa biết nên ở đó hay lánh đi đâu, Lăng Vân đã bưng đến chỗ tôi ngồi một bộ bàn chè, một siêu nước sôi, bảo tôi cứ việc pha nước và uống tự nhiên. Người đến mỗi lúc một đông. Già có, trẻ có, đứng bóng có. Toàn là đàn ông tất cả. Trong nhà giường phản chật hết, người nhà phải quét cái thềm mưa ướt rờm rợp, rồi trải chiếu lên, để làm chỗ ngồi cho mấy ông tí nhau. Hàng xóm vẫn lục tục kéo đến với những bàn chân đất lấm bê bết. Ai cũng như nấy, sau khi đã đến bể nước giội qua, người ta đi nhón lên thềm, chùi chân vào cái chổi rơm làm phép, rồi bước xàm xạp lên chiếu.
+Lăng Vân lắc đầu:
+
+--  Không! Sáng mai nhà tôi phải chứa hàng xóm. Chứa xóm cố nhiên không phải là một đầu đề để nói chuyện. Chúng tôi lảng ra chuyện khác. Đồng hồ điểm hai tiếng mới cùng trùm chăn nằm ngủ. Giấc ngủ của tôi đương ngon, thình lình bị tan bởi mấy tiếng lộc cộc của guốc, và gậy nện xuống thềm gạch. Tôi bừng mắt ra, trời đã sáng rõ, trong nhà lố nhố mấy ông cụ già khăn áo tề chỉnh, Lăng Vân đang xoăn xoe chào mời các cụ một cách cung kính. Giữ lễ xã giao với người lạ, tôi vội tung chăn ngồi dậy và đương lúng túng chưa biết nên ở đó hay lánh đi đâu, Lăng Vân đã bưng đến chỗ tôi ngồi một bộ bàn chè, một siêu nước sôi, bảo tôi cứ việc pha nước và uống tự nhiên. Người đến mỗi lúc một đông. Già có, trẻ có, đứng bóng có. Toàn là đàn ông tất cả. Trong nhà giường phản chật hết, người nhà phải quét cái thềm mưa ướt rờm rợp, rồi trải chiếu lên, để làm chỗ ngồi cho mấy ông tí nhau. Hàng xóm vẫn lục tục kéo đến với những bàn chân đất lấm bê bết. Ai cũng như nấy, sau khi đã đến bể nước giội qua, người ta đi nhón lên thềm, chùi chân vào cái chổi rơm làm phép, rồi bước xàm xạp lên chiếu.
 
 -- Sao không lấy gì mà che, lại đi đội trời thế kia! Nước mưa ướt cả đồ lễ!
 
@@ -173,7 +179,9 @@ Thằng Mới liếc mắt một lượt từ trong nhà ra đến ngoài thềm
 
 -- Bẩm ba mươi người tất cả.
 
-Ở đầu dãy phản tay phải, thấy có tiếng hỏi: - Hàng xóm ta mười mấy suất, cụ còn nhớ không? Rồi có tiếng đáp:
+Ở đầu dãy phản tay phải, thấy có tiếng hỏi:
+
+--  Hàng xóm ta mười mấy suất, cụ còn nhớ không? Rồi có tiếng đáp:
 
 -- Năm ngoái bảy mươi tám suất, năm nay mới thêm năm suất thế là tám mươi ba suất cả thảy.
 
@@ -233,7 +241,9 @@ Ra bộ đắc ý, ảnh bèn xâu chân vào giày và mỗi bên chân ảnh l
 
 -- Thế nào, ông coi tôi đi đã được hay chưa?
 
-Tôi cố nín cười và đáp: - Được rồi đấy! Bây giờ bác thử cởi dây mà đi xem sao! Vẫn cái nét mặt hớn hở, ảnh lại ngồi xuống, tháo hết những nút chằng buộc của giày vào chân. Rồi ảnh thử đi giày không. Quái lạ làm sao! Chân ảnh xỏ vào chiếc giày, vừa mới giơ lên, thì nó đã bắn đi xa độ hai ba thước, y như người ta đá giày đi vậy. Mấy lần ảnh nhặt giày lại, cầm tay xâu vào bàn chân và ảnh mắm môi, nghiến răng, cố quịp cả năm ngón chân để giữ nó lại, nhưng cái đôi giày mất dạy như có thù với bàn chân ảnh, mỗi khi ảnh nhấc chân lên, nó lại bắn đi đánh phót một cái. Buồn rầu, ảnh nói bằng giọng năn nỉ:
+Tôi cố nín cười và đáp:
+
+--  Được rồi đấy! Bây giờ bác thử cởi dây mà đi xem sao! Vẫn cái nét mặt hớn hở, ảnh lại ngồi xuống, tháo hết những nút chằng buộc của giày vào chân. Rồi ảnh thử đi giày không. Quái lạ làm sao! Chân ảnh xỏ vào chiếc giày, vừa mới giơ lên, thì nó đã bắn đi xa độ hai ba thước, y như người ta đá giày đi vậy. Mấy lần ảnh nhặt giày lại, cầm tay xâu vào bàn chân và ảnh mắm môi, nghiến răng, cố quịp cả năm ngón chân để giữ nó lại, nhưng cái đôi giày mất dạy như có thù với bàn chân ảnh, mỗi khi ảnh nhấc chân lên, nó lại bắn đi đánh phót một cái. Buồn rầu, ảnh nói bằng giọng năn nỉ:
 
 -- Ông hãy làm ơn mỗi ngày sang đây dạy tôi một lúc. Nếu mười ngày nữa mà tôi không đi được giày thì lúc vào đám, tôi đành cáo ốm nằm nhà. Ông thủ hiệu không biết đi giày, thật là nhục cho cả làng.
 
@@ -297,7 +307,9 @@ Ngừng lại để vê một mồi thuốc lào, rồi như sợ tôi cướp l
 
 "Bà ta cũng đã chịu khó luồn lọt. Nội các đàn anh trong làng, nhà nào có giỗ có chạp, hay có cưới xin khao khoán, dù không mời, bà ta cũng đến, với một món đồ lễ: đám nhỏ vài chai rượu, đám lớn thì vài đồng bạc. Những lúc làng có công việc, ví như chữa đình, chữa chùa chẳng hạn, bà ta đều có xuất tiền công đức, không tuần chay nào không mất nước mắt. Vậy mà các ông hào lý vẫn không tha cho, hễ gặp dịp bóp được là họ cứ bóp.
 
-Tôi hơi ngạc nhiên và hỏi: - Bà ấy không có họ hàng nào ư? Cớ sao người ta chịu để người ngoài ăn hiếp mãi người trong họ như vậy?
+Tôi hơi ngạc nhiên và hỏi:
+
+--  Bà ấy không có họ hàng nào ư? Cớ sao người ta chịu để người ngoài ăn hiếp mãi người trong họ như vậy?
 
 -- Họ hàng xa cả, chỉ có cả Thân là gần, chính nó được ăn thừa tự bà ấy. Nhưng mà thằng ấy tệ lắm, nó cũng đục khoét bà ta như mọt. Năm trước thua bạc, nó đã bán của bà ấy mất hơn mẫu ruộng, bà ta cũng phải cắn răng mà chịu. Nhiều lúc nó còn thông với các ông hào lý kiếm cớ mà xoay bà ta. Cái việc bây giờ cũng là ở nó mà ra, chứ ai!
 
@@ -339,7 +351,9 @@ Ngạc nhiên tôi hỏi:
 
 -- Nghe nói lệ làng chỉ có một nồi gạo xôi thôi mà! Ông ấy tiêu gì mà hết đến bấy nhiêu tiền?
 
-Họ đáp: - Vâng! Theo lệ làng cháu, mỗi người cấy ruộng xôi mới chỉ phải nộp làng một nồi xôi. Nhưng mà việc gì cũng vậy, một "tang" mười "ngoại" là thường, có khi còn hơn thế nữa. Để cháu xin nói cho ông nghe: "Phần ruộng của làng chia cho bác cháu năm nay, tất cả là hai sào rưỡi. Nếu như gặp năm được mùa, số ruộng ấy cũng được mười lăm nồi thóc, thừa đủ để thổi xôi làng. Nhưng lỡ phải năm mất mùa, nó chỉ được một hai nồi thì làm thế nào? Vì thế, bác cháu đã phải thuê thêm hơn hai sào nữa, dự phòng chỗ hao hụt đó. Rủi cho bác cháu, năm nay tiếng rằng được mùa, nhưng mà các ruộng lúa nếp, ruộng nào cũng bị chuột ăn. Từ khi lúa mới có đòng, bác cháu đã phải đốc xuất người nhà ra ruộng đuổi chuột. Có khi bố con cắt canh mà thức suốt đêm ở các bờ ruộng. Vậy mà nó vẫn ăn hủy ăn hoài, mười phần mất đến chín phần, hơn bốn sào gặt về phơi giã, quạt sạch, chỉ được mười ba nồi thóc, ông tính thế có hại không! Nếu là xôi thường, một nồi gạo chỉ xay độ một nồi thóc là đủ. Nhưng là xôi thờ, bác cháu phải cho xay tám nồi thóc tất cả. Bởi vì, xay rồi còn giã, giã rồi còn phải lựa những hạt đớn, hạt gãy bỏ đi. Tám nồi thóc lấy một nồi gạo, cũng không còn thừa mấy nỗi. Vả lại, từ hạt thóc làm ra hạt gạo, có phải dễ đâu? Luôn tám hôm nay, hôm nào họ mạc giúp đáp cũng phải chè chén. Chúng cháu tính ra mỗi ngày hà tiện cũng hết độ bốn đồng. Thế mà gạo đã được đâu? Còn phải giã thêm hai, ba ngày nữa. Giã đến khi nào hạt gạo bóng nhoáng, cám ở trong gạo trắng như vôi mới thôi!
+Họ đáp:
+
+--  Vâng! Theo lệ làng cháu, mỗi người cấy ruộng xôi mới chỉ phải nộp làng một nồi xôi. Nhưng mà việc gì cũng vậy, một "tang" mười "ngoại" là thường, có khi còn hơn thế nữa. Để cháu xin nói cho ông nghe: "Phần ruộng của làng chia cho bác cháu năm nay, tất cả là hai sào rưỡi. Nếu như gặp năm được mùa, số ruộng ấy cũng được mười lăm nồi thóc, thừa đủ để thổi xôi làng. Nhưng lỡ phải năm mất mùa, nó chỉ được một hai nồi thì làm thế nào? Vì thế, bác cháu đã phải thuê thêm hơn hai sào nữa, dự phòng chỗ hao hụt đó. Rủi cho bác cháu, năm nay tiếng rằng được mùa, nhưng mà các ruộng lúa nếp, ruộng nào cũng bị chuột ăn. Từ khi lúa mới có đòng, bác cháu đã phải đốc xuất người nhà ra ruộng đuổi chuột. Có khi bố con cắt canh mà thức suốt đêm ở các bờ ruộng. Vậy mà nó vẫn ăn hủy ăn hoài, mười phần mất đến chín phần, hơn bốn sào gặt về phơi giã, quạt sạch, chỉ được mười ba nồi thóc, ông tính thế có hại không! Nếu là xôi thường, một nồi gạo chỉ xay độ một nồi thóc là đủ. Nhưng là xôi thờ, bác cháu phải cho xay tám nồi thóc tất cả. Bởi vì, xay rồi còn giã, giã rồi còn phải lựa những hạt đớn, hạt gãy bỏ đi. Tám nồi thóc lấy một nồi gạo, cũng không còn thừa mấy nỗi. Vả lại, từ hạt thóc làm ra hạt gạo, có phải dễ đâu? Luôn tám hôm nay, hôm nào họ mạc giúp đáp cũng phải chè chén. Chúng cháu tính ra mỗi ngày hà tiện cũng hết độ bốn đồng. Thế mà gạo đã được đâu? Còn phải giã thêm hai, ba ngày nữa. Giã đến khi nào hạt gạo bóng nhoáng, cám ở trong gạo trắng như vôi mới thôi!
 
 Tôi lấy làm lạ, lại hỏi nữa:
 
@@ -411,7 +425,9 @@ Bây giờ tôi đã hiểu bán cỗ tức là nộp tiền cho làng. Nhưng c
 
 -- Mỗi năm làng bác dùng hết độ bao nhiêu cỗ?
 
-Anh ta ra bộ đắc ý: - Ôëi chà! Làng cháu to lắm, tất cả đến ba nghìn suất đinh. Riêng từ bàn trùm trở lên cũng có hơn bốn trăm người. Tục làng sáu người một cỗ, cứ thế mà tính hết bao nhiêu thì gọi cho đủ bấy nhiêu. Mỗi năm chừng phải bảy mươi cỗ trở ra.
+Anh ta ra bộ đắc ý:
+
+--  Ôëi chà! Làng cháu to lắm, tất cả đến ba nghìn suất đinh. Riêng từ bàn trùm trở lên cũng có hơn bốn trăm người. Tục làng sáu người một cỗ, cứ thế mà tính hết bao nhiêu thì gọi cho đủ bấy nhiêu. Mỗi năm chừng phải bảy mươi cỗ trở ra.
 
 Con số to khiến tôi hết sức kinh ngạc:
 
@@ -469,7 +485,9 @@ Cả nhà đều luống cuống chỉ lo còn con gà nữa lại mắc bệnh 
 
 -- Cái đó, cụ cứ yên tâm, chúng ta sẽ bắt anh em làm cho thật khéo.
 
-Rồi thì ông đó ngoảnh lại gọi bọn ít tuổi: - Ai biết chằng gà thì đem gà ra chằng đi. Sau một tiếng dạ rất gọn, mấy anh con trai linh lợi bưng hai con gà đặt vào hai chiếc mâm đồng và để lên một cái bàn kê ở gian giữa. Rồi một người khác đem đến cho họ một bó thanh tre và một cuộn dây gai. Dùng tre làm cốt và dây cuốn ngoài, họ buộc cho hai con gà ngỏng cổ, giương cánh, đứng trên mặt mâm. Rồi họ lấy những ruột non, ruột già và bộ dạ dày của nó chằng từ đầu mỏ quặt sang hai cánh làm cho con gà thành ra cái hình con phượng ngậm bức cuốn thư.
+Rồi thì ông đó ngoảnh lại gọi bọn ít tuổi:
+
+--  Ai biết chằng gà thì đem gà ra chằng đi. Sau một tiếng dạ rất gọn, mấy anh con trai linh lợi bưng hai con gà đặt vào hai chiếc mâm đồng và để lên một cái bàn kê ở gian giữa. Rồi một người khác đem đến cho họ một bó thanh tre và một cuộn dây gai. Dùng tre làm cốt và dây cuốn ngoài, họ buộc cho hai con gà ngỏng cổ, giương cánh, đứng trên mặt mâm. Rồi họ lấy những ruột non, ruột già và bộ dạ dày của nó chằng từ đầu mỏ quặt sang hai cánh làm cho con gà thành ra cái hình con phượng ngậm bức cuốn thư.
 
 Cả đám xúm lại ngắm nghía, ai nấy đều cho là được. Bấy giờ họ mới giục nhau đun nước luộc gà.
 
@@ -496,7 +514,9 @@ trăm chiếc mới đủ. Như vậy, mỗi người sửa riêng một kỳ, e
 
 -- Ông lợp lại nhà đấy ư? Trận gió ban đêm tai hại lắm nhỉ!
 
-Ông ta uể oải trả lời: - Không! Nhà tôi có bị "chốc" đâu, mà phải lợp lại! Tôi dỡ đi đây!
+Ông ta uể oải trả lời:
+
+--  Không! Nhà tôi có bị "chốc" đâu, mà phải lợp lại! Tôi dỡ đi đây!
 
 Rồi, như hiểu sự ngạc nhiên ở trong đầu tôi, ông ấy nói tiếp:
 
@@ -520,13 +540,17 @@ Bà ấy còn định nói nữa, nhưng bị bà khác cướp lời:
 
 -- Tôi cũng ái ngại cho ông ấy. Tội nghiệp! Cả vợ lẫn chồng ai cũng hiền lành biết điều, thật thà như đếm. Không hiểu cớ gì lại bị nhiều người ghét bỏ đến thế? Phen này không khéo hết cả cơ nghiệp!
 
-Một bà thứ ba nói xen: - Các bà là bậc nhân đức từ bi, các bà cứ thương ông ấy. Riêng tôi, tôi chẳng thương một chút nào!... Anh em ít, cánh vế không có, thế mà vẫn không biết thân, lại còn cứ bướng, thì ai người ta để cho yên lành!
+Một bà thứ ba nói xen:
+
+--  Các bà là bậc nhân đức từ bi, các bà cứ thương ông ấy. Riêng tôi, tôi chẳng thương một chút nào!... Anh em ít, cánh vế không có, thế mà vẫn không biết thân, lại còn cứ bướng, thì ai người ta để cho yên lành!
 
 Lại một bà nữa tiếp theo:
 
 -- Phải, bà nói phải đấy! Mình ở trong làng, sống nhờ làng, chết nhờ làng. Cái người đã dám vác miệng chửi làng, thì bị trừng trị là đáng kiếp lắm. Hơi đâu mà thương.
 
-Rồi một bà nữa cãi lại: - Các bà đừng nói thế, oan cho ông ta! Chẳng qua ghét nhau thì họ gắp lửa bỏ vào bàn tay... chứ đời nào ông ấy dám động đến làng. Luôn mấy năm nay, hết người này ăn hiếp, lại đến người kia đè lấn, ông ấy vẫn nhịn như nhịn cơm sống, có dám bướng bỉnh với ai đâu!
+Rồi một bà nữa cãi lại:
+
+--  Các bà đừng nói thế, oan cho ông ta! Chẳng qua ghét nhau thì họ gắp lửa bỏ vào bàn tay... chứ đời nào ông ấy dám động đến làng. Luôn mấy năm nay, hết người này ăn hiếp, lại đến người kia đè lấn, ông ấy vẫn nhịn như nhịn cơm sống, có dám bướng bỉnh với ai đâu!
 
 Còn nữa! Làn sóng dư luận còn kéo dài mãi ở dọc đường. Nhưng nó mỗi lúc mỗi theo những gánh gà lợn, rau gạo đi xa dần, nên khi bay lại tai tôi, không còn rõ là tiếng gì nữa. Cố nhiên tôi không có ý nghe chi những chuyện giữa trời, nhưng vì nó đã ngẫu nhiên lọt vào tai, tôi cũng ngẫu nhiên bận óc vì nó. "Chắc là trong làng đã có người nào bị đánh bị trói gì đây". Với câu phỏng đoán đó vơ vẩn trong óc, tôi lững thững đi vào cổng làng. Người làng ở trong các xóm, lũ lượt kéo ra con đường giữa làng, già có, trẻ có, con nít cũng có. Trái lại với quang cảnh của đoạn đường lúc nãy, ở đây rất nhiều đàn ông, thỉnh thoảng mới có một người đàn bà. Với những tiếng cười cười, nói nói, vui như đám hội, người ta đổ xô về nẻo cuối làng. Xen lộn vào sự xôn xao của đám đông người, ở trong các xóm, lại có tiếng lợn eng éc. "Không phải là chuyện đánh nhau, trói nhau, có lẽ người ta sắp sửa có cuộc ăn uống. Phải rồi, hôm nay đàn ông vì bận ăn uống, nên mới nhường hết quyền đi chợ Đình cho bọn đàn bà, đoạn này toàn là đàn ông", tôi vừa cải chính cái câu của tôi phỏng đoán mới rồi, vừa im lặng đi theo một con đường với lũ người ấy. Và tôi đã từ biệt họ khi đến khỏi đình: họ đi tấp nập kéo vào điếm đình, thì tôi rẽ sang nhà Khóa Trúc, người bạn đồng học với tôi năm xưa. Bởi vì chúng tôi có hẹn trước nên lúc ấy anh Trúc đương vơ vẩn đón tôi ở chỗ đầu ngõ. Đường đi tuy rằng hơi xa, nhưng nhà anh này lại ở kề với sân điếm và chỉ cách khu điếm một bức rào bằng găng tây. Vào ngồi trong nhà anh ấy, tôi còn thấy rõ hết thảy cảnh tượng trong điếm. Cái điếm rộng quá!
 
@@ -766,7 +790,9 @@ Như muốn mượn câu chuyện của hắn để tiêu thì giờ, ông L. l�
 
 -- Xe hỏng hay sao?
 
-Anh xe cầm chiếc nón rách vừa quạt vừa nói: - Nào nó có hỏng đi cho, đã phúc nhà con! Rồi hắn ngửa mặt nhìn ông L.:
+Anh xe cầm chiếc nón rách vừa quạt vừa nói:
+
+--  Nào nó có hỏng đi cho, đã phúc nhà con! Rồi hắn ngửa mặt nhìn ông L.:
 
 -- Thưa cậu, từ làng ta đến làng V.Đ ước chừng bao nhiêu cây- lô-mếch?
 
@@ -842,7 +868,9 @@ Người đàn ông chưa nói dứt thì mấy anh tuần đã vội nhảy c�
 
 Người đàn ông vội sụp xuống lạy, khẩn khoản van lơn xin ngơ đi cho để đem vợ về tới nhà.
 
-Bỗng một tiếng của bác trương lẫm liệt thét ra: - Không được, việc này rất quan hệ, đàn em đâu, hãy chạy vào trình cụ tiên xem cụ dạy thế nào đã, anh em mình quyền rơm vạ đá, ăn chẳng có thì tội gì mà để khó đến thân".
+Bỗng một tiếng của bác trương lẫm liệt thét ra:
+
+--  Không được, việc này rất quan hệ, đàn em đâu, hãy chạy vào trình cụ tiên xem cụ dạy thế nào đã, anh em mình quyền rơm vạ đá, ăn chẳng có thì tội gì mà để khó đến thân".
 
 Bác đĩ Tít hu hu bưng mặt khóc, để mặc vợ rũ rượi tóc tai. Dưới ánh mồi lửa của bọn tuần, mẹ con người khốn nạn đầm đìa trong vũng máu! Một anh tuần chạy đi một lát thì bỗng thấy đèn lửa lập lòe trong xóm đi ra, người lớn trẻ con lốc nhốc kéo theo cụ tiên chỉ. Cụ mình khoác áo bông, chân đi guốc gộc, đầu bịt chiếc khăn bông, lòa xòa một chòm râu trắng xóa. Hai con mắt hoăm hoắm dưới bộ lông mày bạc nhìn theo mấy anh tuần chỉ trỏ rồi cụ cất tiếng hỏi:
 
